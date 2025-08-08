@@ -1,0 +1,1 @@
+este foi um curso que eu fiz do canal hastagprogramação para acrescentar ao meu portifolio de analise de dados/This was a course I took on the hastagprogramação channel to add to my data analysis portfolio/
